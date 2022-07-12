@@ -8,7 +8,7 @@
 ## 个人简介
 >张健（SAMUEL ZHANG）
 >
->1988年生丨hi.samuel@hotmail.com丨13264321521丨现居杭州
+>1988年生丨hi.samuel@hotmail.com丨13264321521丨现居葫芦岛
 >
 >Samuel从事电子商务领域8年有余，专注于销售技巧、人工智能、客服管理、客户体验等方面的研究与实践，他已经成功地帮助多家品牌在客服维度取得优异成绩，包括CASIO、DYSON、FUJIFILM等品牌
 
